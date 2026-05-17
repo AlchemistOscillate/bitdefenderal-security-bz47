@@ -1,4 +1,4 @@
-# 
+# exclusive Bitdefender Total Security لجهاز الكمبيوتر سكربتات هو أفضل Bitdefender Total Security لجهاز الكمبيوتر سكربتات مع إدارة الحجر الصحي و التصفح الآمن. آمن، موثوق، ومُحَسّن
 
 
 
